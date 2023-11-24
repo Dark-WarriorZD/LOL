@@ -1,2 +1,2 @@
 # LOL
-https://wvw-roblox.de/generator/Wulfuury/create
+https://shorturl.ac/7cavj
